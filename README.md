@@ -1,4 +1,15 @@
-### Hi there 👋
+ ✮⋆˙- Ghost/Idia, whatever you prefer!
+
+ ✮⋆˙- I use all pronouns however I prefer if you would use he/him and/or they/them the most
+
+ ✮⋆˙- If you're reading this you're probably off of Pony Town so here is a carrd so you can learn more about me !!<33
+ 
+ ✮⋆˙- My carrd: https://b4orafterinteractingwithme.carrd.co/
+    
+                           ╱|、
+                          (˚ˎ 。7  
+                           |、˜〵          
+                          じしˍ,)ノ                       
 
 <!--
 **chenyathemost-ever/chenyathemost-ever** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
