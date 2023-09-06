@@ -7,7 +7,7 @@
 
  ✮⋆˙- If you're reading this you're probably off of Pony Town so here is a carrd so you can learn more about me !!<33
  
- ✮⋆˙- My carrd: https://b4orafterinteractingwithme.carrd.co/
+ ✮⋆˙- My carrd: rmking !!
     
                            ╱|、
                           (˚ˎ 。7  
