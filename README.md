@@ -1,13 +1,3 @@
- ✮⋆˙- Ghost/Idia, whatever you prefer!
-
- ✮⋆˙- I use all pronouns however I prefer if you would use he/him and/or they/them the most
-
- ✮⋆˙- My Discord is caterkinniest 
-(its a matching user) 
-
- ✮⋆˙- If you're reading this you're probably off of Pony Town so here is a carrd so you can learn more about me !!<33
- 
- ✮⋆˙- My carrd: rmking !!
     
                            ╱|、
                           (˚ˎ 。7  
